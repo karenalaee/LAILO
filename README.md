@@ -1,0 +1,3 @@
+Welcome to my website LAILO!
+This in my website, i let you to create your own lailo and edit this site.
+Thanks for watching this page and editing lailo...
